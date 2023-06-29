@@ -14,3 +14,5 @@
 # 專題連結區
 + [想法](https://www.canva.com/design/DAFhN0Tphs8/SarinkU2qCBPGde6BMUBSA/edit)
 + [進度報告](https://www.canva.com/design/DAFjK_TEhOE/kN-bzgBKUdmv7LcVcsL6Cw/edit?utm_content=DAFjK_TEhOE&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
++ [專題簡報final](https://www.canva.com/design/DAFkfepAxCo/Guo6-ppdWivyQtuka9pfHA/view?utm_content=DAFkfepAxCo&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink)
++ [專題Demo影片](https://www.youtube.com/watch?v=xGXqeOCL0XI)
